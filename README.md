@@ -1,1 +1,1 @@
-# RSSCHOOL-CV
+https://RusDorog.github.io/rsschool-cv/cv
